@@ -1,0 +1,1 @@
+# Code-Snippet-for-the-all-the-regions-
